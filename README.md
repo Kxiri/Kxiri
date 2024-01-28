@@ -1,4 +1,4 @@
-👋 Hi, I’m @Kxiri
+@Kxiri
 a person whose trying to learn about internet world!!
 
 
